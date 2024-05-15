@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Andream68
-- 👀 I’m interested in ...Asian drama -Korean, Chinese, Japanes, Thai, BL-, Asian R&B, interior design, travel
+- 👀 I’m interested in ...Asian drama -Korean, Chinese, Japanese, Thai, BL-, Asian R&B, interior design, travel
 - 🌱 I’m currently learning ... Korean, horseback riding
 - 💞️ I’m looking to collaborate on ... healthcare IT project management ideas
 - 📫 How to reach me ... IG @limitededitionliving
